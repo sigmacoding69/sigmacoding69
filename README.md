@@ -1,1 +1,1 @@
-# sigmacoding69.github.io
+# sigmacoding69 is cool
